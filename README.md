@@ -9,7 +9,8 @@ Fandoms *.  FAA , TF2 , DNB , MD , STARTERS , CUPHEAD , CONSTRUCTION, ENDACOPIA 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
 
-<img width="500" height="500" alt="picmix com_14010616" src="https://github.com/user-attachments/assets/ed869594-6141-4ea1-bb12-eaebf9c01212" />
+<img width="735" height="1117" alt="ca93a680dd7da7b1dfdcc4fd8fa747e0" src="https://github.com/user-attachments/assets/40578ee7-5960-4ba6-ac87-85c0f4c7f9d6" />
+
 
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
